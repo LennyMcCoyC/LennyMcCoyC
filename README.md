@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Cassie, a junior frontend dev
 - 👀 I’m interested in building beautiful websites!
-- 💞️ I’m looking for an opportunity at an exciting company
+- 💞️ I’m looking for a wonderful opportunity at an exciting company
 - 📫 Please email me at cassieducc@gmail.com
 - 🐧 I luv penguins!!!!!! (shhhhhhh---)
 
