@@ -2,6 +2,7 @@
 - 👀 I’m interested in building beautiful websites!
 - 💞️ I’m looking for an opportunity at an exciting company
 - 📫 Please email me at cassieducc@gmail.com
+- 🐧 I luv penguins!!!!!! (shhhhhhh---)
 
 <!---
 LennyMcCoyC/LennyMcCoyC is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
